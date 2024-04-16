@@ -14,4 +14,5 @@ Track Record: Demonstrated success in enhancing user engagement and conversion r
 I'm eager to explore how my skills and enthusiasm can contribute to your team's success. Feel free to reach out to discuss potential collaborations or just to geek out over the latest front-end tools and trends.
 
 Cheers,
+
 Bilgi Basak OZGUN
